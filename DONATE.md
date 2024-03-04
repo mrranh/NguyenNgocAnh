@@ -6,8 +6,7 @@ My name is [NGUYỄN NGỌC ANH](https://github.com/mrranh)
 
 - You can donate by **transfer money** to my e-wallet/bank account below.
 
-- You can **scan QR Code** to make donation progress faster.
-- Or contact me: [Facebook](https://www.facebook.com/profile.php?id=61555494982797)
+- Or contact me: Zalo VN : +84 97 493 4443
 
 *Tiếng việt:* 💕
 
