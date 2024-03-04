@@ -12,8 +12,7 @@ My name is [NGUYỄN NGỌC ANH](https://github.com/mrranh)
 *Tiếng việt:* 💕
 
 - Donate bằng cách **chuyển tiền** tới các tài khoản của mình bên dưới.
-- Bạn có thể **quét mã QR** ở cột QR Code để nhập thông tin nhanh hơn.
-- Hoặc liên hệ trực tiếp với mình: [Facebook](https://www.facebook.com/profile.php?id=61555494982797)
+- Hoặc liên hệ trực tiếp với mình: Zalo VN : +84 97 493 4443
 
 | Provider | ID | Name 
 |:-----:|:------------:|---:|
